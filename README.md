@@ -3,3 +3,6 @@
  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=oleo+script+1&size=15&pause=1000&color=00FA85&width=700&lines=If+I+die+nd+go+2+hell+real+soon,,;It'll+appear+2+me+az+this+room!!;Nd+4+eternity+I'd+lay+in+bed;In+my+boxers,+half+stoned,+with+a+pillow+under+my+head!!!;I'd+b+chatting+on+the+interweb;Maggots+prey+upon+the+living+ded!;I+had+no+interezt+in+the+things+she+said;On+the+phone+everday;I'll+permanently+hit+the+hay!!!)](https://git.io/typing-svg)
 
 <img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/dc954408-2452-4931-8db4-39f8c8a2c31e" />
+
+what the fuuucckckkddkfdjddvm
+<img width="415" height="40" alt="image" src="https://github.com/user-attachments/assets/e41a2519-e805-4f79-b80f-2ed98fac6bd8" /> maggot boiiiii u gotta be joking fr

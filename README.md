@@ -15,6 +15,9 @@
 </div>
 
 <img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/dc954408-2452-4931-8db4-39f8c8a2c31e" />
+<gif src="https://blinkies.cafe/b/display/0264-adhd.gif">
+
+
 
 what the fuuucckckkddkfdjddvm
 <img width="415" height="40" alt="image" src="https://github.com/user-attachments/assets/e41a2519-e805-4f79-b80f-2ed98fac6bd8" /> maggot boiiiii u gotta be joking fr man im 2 tired to write about this rn

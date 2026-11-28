@@ -1,5 +1,6 @@
 <img width="1881" height="400" alt="Untitled design (1)" src="https://github.com/user-attachments/assets/6473c34c-9a96-4e1d-8917-66ec3ff4434b" />
-<img width="500" alt="confetti" src="https://github.com/user-attachments/assets/dcbce86e-4769-468a-bf79-3d58767c545a" />
+<img width="400" alt="confetti" src="https://github.com/user-attachments/assets/dcbce86e-4769-468a-bf79-3d58767c545a" /><img width="400" alt="confetti" src="https://github.com/user-attachments/assets/dcbce86e-4769-468a-bf79-3d58767c545a" />
+
 
 <div align=center><a href="https://visitorbadge.io//status?path=TimmyMcNaughton"><img src="https://api.visitorbadge.io/api/visitors?path=TimmyMcNaughton&label=%CB%9A%E2%82%8A%E2%80%A7%EA%92%B0%E1%83%90%20%E2%82%8D%E1%90%A2.%20%20%CC%AB.%E1%90%A2%E2%82%8E%20%E0%BB%92%EA%92%B1%20%E2%80%A7%E2%82%8A%CB%9A&labelColor=%2316ffb7&countColor=%23a4ff16&style=flat-square&labelStyle=upper" /></a></div>
 

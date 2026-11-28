@@ -1,5 +1,6 @@
 <img width="1881" height="400" alt="Untitled design (1)" src="https://github.com/user-attachments/assets/6473c34c-9a96-4e1d-8917-66ec3ff4434b" />
-<br><br><br>
+<img width="500" alt="confetti" src="https://github.com/user-attachments/assets/dcbce86e-4769-468a-bf79-3d58767c545a" />
+
 <div align=center><a href="https://visitorbadge.io//status?path=TimmyMcNaughton"><img src="https://api.visitorbadge.io/api/visitors?path=TimmyMcNaughton&label=%CB%9A%E2%82%8A%E2%80%A7%EA%92%B0%E1%83%90%20%E2%82%8D%E1%90%A2.%20%20%CC%AB.%E1%90%A2%E2%82%8E%20%E0%BB%92%EA%92%B1%20%E2%80%A7%E2%82%8A%CB%9A&labelColor=%2316ffb7&countColor=%23a4ff16&style=flat-square&labelStyle=upper" /></a></div>
 
  <br><br>
@@ -15,7 +16,9 @@
 </div>
 
 <img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/dc954408-2452-4931-8db4-39f8c8a2c31e" />
-<img width="150" height="20" alt="Chaos" src="https://github.com/user-attachments/assets/e33f16d0-f287-479f-bf25-3c764affb64a" /><img width="150" height="20" alt="EYESTRAIN!1!1" src="https://github.com/user-attachments/assets/44f1e676-6c64-4f1f-8388-3b9cb13ee44d" />
+<img width="150" height="20" alt="Chaos" src="https://github.com/user-attachments/assets/e33f16d0-f287-479f-bf25-3c764affb64a" /><img width="150" height="20" alt="EYESTRAIN!1!1" src="https://github.com/user-attachments/assets/44f1e676-6c64-4f1f-8388-3b9cb13ee44d" /><img width="150" height="20" alt="I dont fuckin know" src="https://github.com/user-attachments/assets/405277c4-7642-4389-b14a-7c2bcc4f44f4" />
+
+
 
 
 

@@ -15,7 +15,11 @@
 </div>
 
 <img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/dc954408-2452-4931-8db4-39f8c8a2c31e" />
-<img width="150" height="20" alt="Chaos" src="https://github.com/user-attachments/assets/e33f16d0-f287-479f-bf25-3c764affb64a" />
+<img width="150" height="20" alt="Chaos" src="https://github.com/user-attachments/assets/e33f16d0-f287-479f-bf25-3c764affb64a" /><img width="150" height="20" alt="EYESTRAIN!1!1" src="https://github.com/user-attachments/assets/44f1e676-6c64-4f1f-8388-3b9cb13ee44d" />
+
+
+
+
 
 
 

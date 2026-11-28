@@ -15,7 +15,8 @@
 </div>
 
 <img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/dc954408-2452-4931-8db4-39f8c8a2c31e" />
-<gif width="300" alt="image" src="https://blinkies.cafe/b/display/0264-adhd.gif"/>
+<img width="150" height="20" alt="Chaos" src="https://github.com/user-attachments/assets/e33f16d0-f287-479f-bf25-3c764affb64a" />
+
 
 
 

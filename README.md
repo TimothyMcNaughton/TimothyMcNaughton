@@ -17,7 +17,10 @@
 </div>
 
 <img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/dc954408-2452-4931-8db4-39f8c8a2c31e" />
-<img width="150" height="20" alt="Chaos" src="https://github.com/user-attachments/assets/e33f16d0-f287-479f-bf25-3c764affb64a" /><img width="150" height="20" alt="EYESTRAIN!1!1" src="https://github.com/user-attachments/assets/44f1e676-6c64-4f1f-8388-3b9cb13ee44d" /><img width="150" height="20" alt="I dont fuckin know" src="https://github.com/user-attachments/assets/405277c4-7642-4389-b14a-7c2bcc4f44f4" /><img width="150" height="20" alt="62" src="https://github.com/user-attachments/assets/8ccc015a-5267-46d1-9b36-89d4bec4be87" />
+<img width="150" height="20" alt="Chaos" src="https://github.com/user-attachments/assets/e33f16d0-f287-479f-bf25-3c764affb64a" /><img width="150" height="20" alt="EYESTRAIN!1!1" src="https://github.com/user-attachments/assets/44f1e676-6c64-4f1f-8388-3b9cb13ee44d" /><img width="150" height="20" alt="I dont fuckin know" src="https://github.com/user-attachments/assets/405277c4-7642-4389-b14a-7c2bcc4f44f4" /><img width="150" height="20" alt="62" src="https://github.com/user-attachments/assets/8ccc015a-5267-46d1-9b36-89d4bec4be87" /><img width="150" height="20" alt="17" src="https://github.com/user-attachments/assets/4cf26c8c-3077-4600-bf9c-d5ef5f2d265f" /><img width="150" height="20" alt="67" src="https://github.com/user-attachments/assets/0bb485f6-8cd2-4c58-b564-ac8aca4657ad" /><img width="150" height="20" alt="22" src="https://github.com/user-attachments/assets/2efa4200-e698-4504-a887-b4e5d1fe0889" />
+
+
+
 
 
 

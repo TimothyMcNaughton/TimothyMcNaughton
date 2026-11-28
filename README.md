@@ -1,4 +1,4 @@
-<img width="258" height="67" alt="image" src="https://github.com/user-attachments/assets/5223f4c1-2c52-4c54-a016-e262c8c2a0b5" /> boiiiiii stop lying in my face KARIN this is exactly why i asked i knew u were gonna make up some bullshit
+<img width="258" height="67" alt="image" src="https://github.com/user-attachments/assets/5223f4c1-2c52-4c54-a016-e262c8c2a0b5" /> boiiiiii stop lying in my face KARIN this is exactly why i asked i knew u were gonna make up some bullshit. And loook who deleted their github... AGAIN!
 
 <img width="1881" height="400" alt="Untitled design (1)" src="https://github.com/user-attachments/assets/6473c34c-9a96-4e1d-8917-66ec3ff4434b" />
 <img width="400" alt="confetti" src="https://github.com/user-attachments/assets/dcbce86e-4769-468a-bf79-3d58767c545a" /><img width="400" alt="confetti" src="https://github.com/user-attachments/assets/dcbce86e-4769-468a-bf79-3d58767c545a" />
